@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Lee
+- 👀 I’m interested in sleeping
+- 🌱 I’m currently learning PS
